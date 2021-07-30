@@ -6,7 +6,7 @@ Hi!
 My name is Kai.
 I'm still studying and I don't know where to start at all.
 I want to melt the heart of the red planet.
-Will you help me?
+Will you help me with this?
 
 
 Just don't tell Max about it..shh
