@@ -1,9 +1,12 @@
 # The-Red-Planet
-Путешествие в космос
- 
-Привет!
-Меня зовут Кай.
-Я ещё учусь и совсем не знаю с чего начать.
-Хочу растопить сердце красной планеты.
-Поможешь мне?
 
+A journey into space
+ 
+Hi!
+My name is Kai.
+I'm still studying and I don't know where to start at all.
+I want to melt the heart of the red planet.
+Will you help me?
+
+
+Just don't tell Max about it..shh
